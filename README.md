@@ -5,3 +5,4 @@ goood morning
 How are you today. 
 good wbu?̊̈
 I'm fine thank you. 
+oh fr?̊̈
