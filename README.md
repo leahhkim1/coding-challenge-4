@@ -7,3 +7,4 @@ good wbu?̊̈
 I'm fine thank you. 
 oh fr?̊̈
 yessir
+okii have fun
